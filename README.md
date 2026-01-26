@@ -1,4 +1,3 @@
-# About Me
 ## 🫠 Hi there! My name is Mavi and I'm an up and coming web developer in the U.S. 
 ### I currently have **one** main project however, I will be creating more so hang tight for new updates!
 ### My current Skills include:
