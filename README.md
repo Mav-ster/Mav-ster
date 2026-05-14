@@ -20,5 +20,10 @@
 >2. Night Tapes- Portal//Polarities 🌌
 >3. Paramore- All We Know Is Falling 🎸
 ---
-## Check out my art!
->[giselyyyy_](https://www.tiktok.com/@giselyyyy_) 🎨
+## Check out my Socials!
+---
+[![github](https://github.com/user-attachments/assets/25b83cd3-8f20-469f-a4d6-436822d5afa5)][1]
+[![github](https://github.com/user-attachments/assets/97329765-c1e2-479f-a98f-4d22681c2600)][2]
+---
+[1]:https://www.linkedin.com/in/mavi-reyes-328201373/
+[2]:https://www.tiktok.com/@giselyyyy_
