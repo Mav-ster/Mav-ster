@@ -5,7 +5,7 @@
 >- CSS
 >- photoshop
 >- Adobe Dreamweaver
-### I am also billengual in *english* and *spanish*
+### I am also billengual in *English* and *Spanish*
 ---
 ## Besides coding I am also an anime fan! 
 >*My top three favorite anime's as of 2026*
